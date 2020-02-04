@@ -12,3 +12,6 @@ Target Users
 
 - For this interview specifically, the interviewer decides to specify a subcategory under the general student group – international students, due to the special identity of the participant. The reason behind this is that in comparison to the overall student group, the international student group is a minority on campus, and thus might not be recognized as much as domestic students. They might even have their special methods in finding resources and connect with individuals within LGBTQ, or more specifically International LGBTQ community. For the purpose to understand distinctive individuals’ experience and behavior, pertinent questions will be asked about the international LGBTQ community, specifically the international LGBTQ community at UCLA. 
 
+Research Method
+
+
