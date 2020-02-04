@@ -18,15 +18,41 @@ Research Method
 
 - For this contextual inquiry, I choose individual semi-formal interviews as my method of observation. I plan to interview a college student, who is also the target user with direct observation. I choose this method because first of all, the interview can provide better-quality answers. For surveys, the level of completion and quality of answers largely depend on the participants’ conditions (such as their time-availability). Interviews allow me to curate the questions I intend to ask the participant, and also the interview setting (usually a quiet place with minimal distractions) ensures the participant can think without much disturbances and thus can provide honest and thoughtful answers. Moreover, as an interviewer, I will be recording the interview session. Thus, I will be able to evaluate any non-verbal behavior of the participant that might be essential for the product improvement. The participants exhibit their most sincere and genuine actions while doing the activity, and thus I would be able to analyze their reactions in helping me decide whether a particular function/search causes the most confusion and thus invent ways to improve on that aspect. Furthermore, interviews have more flexibility. By evaluating the answers, the interviewers ask of the interviewees, interviewers can decide to dig deeper into an answer thereby better understand the rationales behind a type of behavior, activity or decision. Interviews provide more insightful and in-depth observations instead of just on a surface level. 
 
-### Link to Contextual Inquiry Script
+### Contextual Inquiry Script
 
 https://drive.google.com/file/d/1_bYbJy00KTrIDJOv8C3GcffaZ2GPwfEP/view?usp=sharing
 
-### Link to Video Recording of the Interview
+### Video Recording of the Interview
 
 https://drive.google.com/file/d/152yWYgObGC3RYtQ-v_O6PZjv3FdAfq28/view?usp=sharing
 
-### Link to Interview Transcript
+### Interview Transcript
 
 https://drive.google.com/file/d/1CY7xnQ0JyidgVfT5SDMLtyHYyk6ODtNr/view?usp=sharing
+
+### Reflection
+
+Summary of the Process: 
+
+- summary
+
+What did I learn from the interviewee: 
+
+- first of all
+
+- secondly
+
+- thirdly
+
+- fourthly
+
+What would I do differently: 
+
+- make sure there is plenty of time
+
+- change to a language 
+
+- allow more time for thinking and speaking, instead of "over-prompting" the interviewee. 
+
+
 
