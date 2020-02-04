@@ -20,7 +20,7 @@ Research Method
 
 ### Contextual Inquiry Script
 
-https://drive.google.com/file/d/1_bYbJy00KTrIDJOv8C3GcffaZ2GPwfEP/view?usp=sharing
+https://drive.google.com/file/d/119nuumM9x5lQCJdQT_YrF5_4KlXmv9Po/view?usp=sharing
 
 ### Video Recording of the Interview
 
