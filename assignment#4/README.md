@@ -38,13 +38,13 @@ Summary of the Process:
 
 What did I learn from the interviewee: 
 
-- first of all
+- First of all, UCLA has rich resources for the LGBTQ community, but students might encounter obstacles in narrowing down the information. For example, the interviewee mentioned multiple times that when she joined UCLA, she felt overwhelmed by the campus and the amount of information and resources that the school provides. Thus, she was unable to narrow down specific information regarding the LGBTQ community. Overtime and also by acquiring information from people who are more familiar with the campus, she was able to find information about the community she needed and thus joined the organization, Prism where she found care and belongingness. 
 
-- secondly
+- Moreover, Members within the community are still facing misunderstanding, discrimination, and judgments. To offset the negative effects brought by these, they often seek help from the group. For example, as my interviewee Ruchen mentioned, she self-identifies as a bisexual individual. Due to her bisexuality, she encountered situations where people, often without proper or sufficient knowledge of bisexuality, misunderstand or negatively comment on her LGBTQ identity. As Ruchen suggested, there should be more recognition and thus proper educational resources to clear this confusion and misjudgments. 
 
-- thirdly
+- Furthermore, Certain student groups don’t receive enough recognition and specialized support. In terms of campus resources and benefits, they are rather marginalized. In the interview, Ruchen specifically mentioned that the LGBTQ community in her country, China, is misplaced, ignored and usually responded with discrimination and rejection. These people who belong to the international LGBTQ community need special care and resources that help them improve their queer experiences and find a sense of inclusion, self-esteem, self-awareness, and belongingness. However, as she mentioned, the UCLA campus fails to provide appropriate recognition for the international group and thus fail to satisfy their needs for resources.  
 
-- fourthly
+- Last but not least, To tackle the problem with lacking resources, International students have their methods in forming solitude and support among the group. Ruchen, for example, when she was back in China, joined an LGBTQ festival to seek belongingness and a sense of community. While experiencing lacking resources for international students, Ruchen initiated an LGBTQ group for her Chinese companions on a common app used among these students to construct community, build connections and instill safety. 
 
 What would I do differently: 
 
