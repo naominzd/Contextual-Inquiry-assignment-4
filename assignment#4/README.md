@@ -48,11 +48,7 @@ What did I learn from the interviewee:
 
 What would I do differently: 
 
-- make sure there is plenty of time
+- I would make sure there is sufficient time for preparation and execution of the interview: due to the limited time for interviewing, transcribing and analyzing the overall process, I intended to interview with prompt actions in an efficient manner. However, I overlooked the fact that the interviewee might need more time to relax, get familiar with the process, and especially the interviewer personally thereby feeling less restrained by the unfamiliarity and more comfortable to speak about her experiences. Therefore, next time I would ensure more “air to breathe” and flexibility before the interview and try to create an environment where interviewees feel safer, more relaxed and open to communicate about her thoughts, feelings, and experiences. 
 
-- change to a language 
-
-- allow more time for thinking and speaking, instead of "over-prompting" the interviewee. 
-
-
+- I would make sure to check with my interviewee about the language they are most comfortable with. Take this interview for example, Ruchen and I are both international students from China. To transcribe, I decided to use English as the communicative language throughout the interview process. Nonetheless, I might have overlooked the fact that Ruchen’s primary language is Chinese, instead of English. Therefore, she might be more comfortable and thus more articulate when speaking in her primary language. The fact that English is her second language might hinder her ability to precisely communicate her ideas, and thus affected the overall results of the interview. (example: Ruchen might provide more insightful information in her primary language that could potentially help the interviewer understand LGBTQ community). Consequently, next time I would make sure to ask my interviewee’s preferences before the interview and make it flexible for them to choose a language they are most comfortable with. (Limit to only Chinese and English)
 
